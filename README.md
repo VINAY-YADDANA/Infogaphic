@@ -1,0 +1,2 @@
+# Infogaphic
+Small business
